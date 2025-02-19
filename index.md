@@ -8,4 +8,4 @@
 
 
 ![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
-![imagem Notion] (https://img.icons8.com/ios/250/000000/air-jordan.png)
+![imagem Notion](https://github.com/user-attachments/assets/a5877265-840f-4d57-8d62-64b720af7e72)
