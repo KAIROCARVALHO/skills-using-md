@@ -6,6 +6,6 @@
 
   ###### nao sou escritor, apenas ofereço ao ego o desfrute de sentir-se parte de algo.
 
-
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
 ![imagem Notion](https://github.com/user-attachments/assets/a5877265-840f-4d57-8d62-64b720af7e72)
+
+
