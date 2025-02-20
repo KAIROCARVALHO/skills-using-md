@@ -7,5 +7,5 @@
   ###### nao sou escritor, apenas ofereço ao ego o desfrute de sentir-se parte de algo.
 
 ![imagem Notion](https://github.com/user-attachments/assets/a5877265-840f-4d57-8d62-64b720af7e72)
-
+    
 
